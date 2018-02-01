@@ -2,5 +2,5 @@
 akoori
 Hi
 my name is Mmbudzeni
-A wonam who is a go getter
+A woman who is a go getter
 i like exploaring new things
